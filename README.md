@@ -46,5 +46,5 @@ Cette étude met en évidence l'importance du taux d'apprentissage et de la tail
 
 Pour toute question ou contribution, veuillez contacter :
 - **IGNASSOU Kadi** (ignassze11@gmail.com)
-- **MISSENGUE MOULOMBO Exaucée**
+- **MISSENGUE MOULOMBO Exaucée** (emissenguemoulombo@gmail.com)
 - Sous la supervision de Mme. MBIA NDI Marie Thérèse, Enseignante à l'ISSEA.
